@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Skeletens
+- 👀 I’m interested in Skyrim Modding
+- 🌱 I’m currently learning C++.
+- 📫 How to reach me wiliamsart077@gmail.com or skeletens-(discord)
+- 😄 Pronouns: they/them
+- ⚡ Fun fact: Monster addict
